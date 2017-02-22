@@ -1,0 +1,4 @@
+---
+slug: freida
+name: freida
+---
