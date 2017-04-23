@@ -1,0 +1,4 @@
+---
+slug: waistband
+name: waistband
+---
