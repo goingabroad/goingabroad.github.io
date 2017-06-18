@@ -1,0 +1,4 @@
+---
+slug: spahetti
+name: spahetti
+---
