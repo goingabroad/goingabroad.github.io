@@ -3,7 +3,7 @@ layout: post
 date: '2017-03-15'
 title: "Blu by Mori Lee 5266 Satin Strapless Sweetheart Wedding Dress"
 category: Blu by Mori Lee
-tags: ["unique","style","sale","special","mori"]
+tags: ["strapless","satin","mori","bridal","sale"]
 image: http://www.eudances.com/12227-thickbox_default/blu-by-mori-lee-5266-satin-strapless-sweetheart-wedding-dress.jpg
 ---
 Blu by Mori Lee 5266 Satin Strapless Sweetheart Wedding Dress
