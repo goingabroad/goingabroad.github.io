@@ -3,7 +3,7 @@ layout: post
 date: '2017-06-29'
 title: "Bari Jay BC-1570 Chiffon Bridesmaid Dress"
 category: Bari Jay
-tags: ["wedding","unique","dress","crazy","bari"]
+tags: ["sale","dresses","style","wedding","special"]
 image: http://www.eudances.com/9888-thickbox_default/bari-jay-bc-1570-chiffon-bridesmaid-dress.jpg
 ---
 Bari Jay BC-1570 Chiffon Bridesmaid Dress
