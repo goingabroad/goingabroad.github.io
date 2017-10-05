@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-05-15'
+title: "Mikaella Spring/Summer 2017 2102 Sweep Train Ivory Sweet Spaghetti Straps Mermaid Sleeveless Embroidery Satin Wedding Gown"
+category: Mikaella
+tags: ["dresses","ivory","mikaella","summer","style"]
+image: http://www.eudances.com/21576-thickbox_default/mikaella-spring-summer-2017-2102-sweep-train-ivory-sweet-spaghetti-straps-mermaid-sleeveless-embroidery-satin-wedding-gown.jpg
+---
+Mikaella Spring/Summer 2017 2102 Sweep Train Ivory Sweet Spaghetti Straps Mermaid Sleeveless Embroidery Satin Wedding Gown
+
+On Sales: **$338.98**
+<a href="https://www.eudances.com/en/mikaella/6626-mikaella-spring-summer-2017-2102-sweep-train-ivory-sweet-spaghetti-straps-mermaid-sleeveless-embroidery-satin-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/21576-thickbox_default/mikaella-spring-summer-2017-2102-sweep-train-ivory-sweet-spaghetti-straps-mermaid-sleeveless-embroidery-satin-wedding-gown.jpg" alt="Mikaella Spring/Summer 2017 2102 Sweep Train Ivory Sweet Spaghetti Straps Mermaid Sleeveless Embroidery Satin Wedding Gown 0" /></a>
+<a href="https://www.eudances.com/en/mikaella/6626-mikaella-spring-summer-2017-2102-sweep-train-ivory-sweet-spaghetti-straps-mermaid-sleeveless-embroidery-satin-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/21580-thickbox_default/mikaella-spring-summer-2017-2102-sweep-train-ivory-sweet-spaghetti-straps-mermaid-sleeveless-embroidery-satin-wedding-gown.jpg" alt="Mikaella Spring/Summer 2017 2102 Sweep Train Ivory Sweet Spaghetti Straps Mermaid Sleeveless Embroidery Satin Wedding Gown 1" /></a>
+<a href="https://www.eudances.com/en/mikaella/6626-mikaella-spring-summer-2017-2102-sweep-train-ivory-sweet-spaghetti-straps-mermaid-sleeveless-embroidery-satin-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/21579-thickbox_default/mikaella-spring-summer-2017-2102-sweep-train-ivory-sweet-spaghetti-straps-mermaid-sleeveless-embroidery-satin-wedding-gown.jpg" alt="Mikaella Spring/Summer 2017 2102 Sweep Train Ivory Sweet Spaghetti Straps Mermaid Sleeveless Embroidery Satin Wedding Gown 2" /></a>
+<a href="https://www.eudances.com/en/mikaella/6626-mikaella-spring-summer-2017-2102-sweep-train-ivory-sweet-spaghetti-straps-mermaid-sleeveless-embroidery-satin-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/21578-thickbox_default/mikaella-spring-summer-2017-2102-sweep-train-ivory-sweet-spaghetti-straps-mermaid-sleeveless-embroidery-satin-wedding-gown.jpg" alt="Mikaella Spring/Summer 2017 2102 Sweep Train Ivory Sweet Spaghetti Straps Mermaid Sleeveless Embroidery Satin Wedding Gown 3" /></a>
+<a href="https://www.eudances.com/en/mikaella/6626-mikaella-spring-summer-2017-2102-sweep-train-ivory-sweet-spaghetti-straps-mermaid-sleeveless-embroidery-satin-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//www.eudances.com/21577-thickbox_default/mikaella-spring-summer-2017-2102-sweep-train-ivory-sweet-spaghetti-straps-mermaid-sleeveless-embroidery-satin-wedding-gown.jpg" alt="Mikaella Spring/Summer 2017 2102 Sweep Train Ivory Sweet Spaghetti Straps Mermaid Sleeveless Embroidery Satin Wedding Gown 4" /></a>
+
+Buy it: [Mikaella Spring/Summer 2017 2102 Sweep Train Ivory Sweet Spaghetti Straps Mermaid Sleeveless Embroidery Satin Wedding Gown](https://www.eudances.com/en/mikaella/6626-mikaella-spring-summer-2017-2102-sweep-train-ivory-sweet-spaghetti-straps-mermaid-sleeveless-embroidery-satin-wedding-gown.html "Mikaella Spring/Summer 2017 2102 Sweep Train Ivory Sweet Spaghetti Straps Mermaid Sleeveless Embroidery Satin Wedding Gown")
+
+View more: [Mikaella](https://www.eudances.com/en/106-mikaella "Mikaella")
