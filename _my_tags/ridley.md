@@ -1,0 +1,4 @@
+---
+slug: ridley
+name: ridley
+---
