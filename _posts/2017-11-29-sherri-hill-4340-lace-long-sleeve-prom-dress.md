@@ -3,7 +3,7 @@ layout: post
 date: '2017-11-29'
 title: "Sherri Hill 4340 Lace Long Sleeve Prom Dress"
 category: Sherri Hill
-tags: ["lace","bridal","long","sale","special"]
+tags: ["crazy","dress","special","long","hill"]
 image: http://img.eudances.com/15513-thickbox_default/sherri-hill-4340-lace-long-sleeve-prom-dress.jpg
 ---
 Sherri Hill 4340 Lace Long Sleeve Prom Dress
