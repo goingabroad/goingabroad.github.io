@@ -1,0 +1,4 @@
+---
+slug: bali
+name: bali
+---
