@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-12-30'
+title: "Julie Vino Fall/Winter 2017 1212-4 Sweet Ivory Chapel Train Spaghetti Straps Fit & Flare Sleeveless Embroidery Crepe Bridal Gown"
+category: Julie Vino
+tags: ["unique","bridal","winter","chapel","sale"]
+image: http://img.eudances.com/32605-thickbox_default/julie-vino-fall-winter-2017-1212-4-sweet-ivory-chapel-train-spaghetti-straps-fit-flare-sleeveless-embroidery-crepe-bridal-gown.jpg
+---
+Julie Vino Fall/Winter 2017 1212-4 Sweet Ivory Chapel Train Spaghetti Straps Fit & Flare Sleeveless Embroidery Crepe Bridal Gown
+
+On Sales: **$388.98**
+<a href="https://www.eudances.com/en/julie-vino/10089-julie-vino-fall-winter-2017-1212-4-sweet-ivory-chapel-train-spaghetti-straps-fit-flare-sleeveless-embroidery-crepe-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32605-thickbox_default/julie-vino-fall-winter-2017-1212-4-sweet-ivory-chapel-train-spaghetti-straps-fit-flare-sleeveless-embroidery-crepe-bridal-gown.jpg" alt="Julie Vino Fall/Winter 2017 1212-4 Sweet Ivory Chapel Train Spaghetti Straps Fit & Flare Sleeveless Embroidery Crepe Bridal Gown 0" /></a>
+<a href="https://www.eudances.com/en/julie-vino/10089-julie-vino-fall-winter-2017-1212-4-sweet-ivory-chapel-train-spaghetti-straps-fit-flare-sleeveless-embroidery-crepe-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32609-thickbox_default/julie-vino-fall-winter-2017-1212-4-sweet-ivory-chapel-train-spaghetti-straps-fit-flare-sleeveless-embroidery-crepe-bridal-gown.jpg" alt="Julie Vino Fall/Winter 2017 1212-4 Sweet Ivory Chapel Train Spaghetti Straps Fit & Flare Sleeveless Embroidery Crepe Bridal Gown 1" /></a>
+<a href="https://www.eudances.com/en/julie-vino/10089-julie-vino-fall-winter-2017-1212-4-sweet-ivory-chapel-train-spaghetti-straps-fit-flare-sleeveless-embroidery-crepe-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32608-thickbox_default/julie-vino-fall-winter-2017-1212-4-sweet-ivory-chapel-train-spaghetti-straps-fit-flare-sleeveless-embroidery-crepe-bridal-gown.jpg" alt="Julie Vino Fall/Winter 2017 1212-4 Sweet Ivory Chapel Train Spaghetti Straps Fit & Flare Sleeveless Embroidery Crepe Bridal Gown 2" /></a>
+<a href="https://www.eudances.com/en/julie-vino/10089-julie-vino-fall-winter-2017-1212-4-sweet-ivory-chapel-train-spaghetti-straps-fit-flare-sleeveless-embroidery-crepe-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32607-thickbox_default/julie-vino-fall-winter-2017-1212-4-sweet-ivory-chapel-train-spaghetti-straps-fit-flare-sleeveless-embroidery-crepe-bridal-gown.jpg" alt="Julie Vino Fall/Winter 2017 1212-4 Sweet Ivory Chapel Train Spaghetti Straps Fit & Flare Sleeveless Embroidery Crepe Bridal Gown 3" /></a>
+<a href="https://www.eudances.com/en/julie-vino/10089-julie-vino-fall-winter-2017-1212-4-sweet-ivory-chapel-train-spaghetti-straps-fit-flare-sleeveless-embroidery-crepe-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/32606-thickbox_default/julie-vino-fall-winter-2017-1212-4-sweet-ivory-chapel-train-spaghetti-straps-fit-flare-sleeveless-embroidery-crepe-bridal-gown.jpg" alt="Julie Vino Fall/Winter 2017 1212-4 Sweet Ivory Chapel Train Spaghetti Straps Fit & Flare Sleeveless Embroidery Crepe Bridal Gown 4" /></a>
+
+Buy it: [Julie Vino Fall/Winter 2017 1212-4 Sweet Ivory Chapel Train Spaghetti Straps Fit & Flare Sleeveless Embroidery Crepe Bridal Gown](https://www.eudances.com/en/julie-vino/10089-julie-vino-fall-winter-2017-1212-4-sweet-ivory-chapel-train-spaghetti-straps-fit-flare-sleeveless-embroidery-crepe-bridal-gown.html "Julie Vino Fall/Winter 2017 1212-4 Sweet Ivory Chapel Train Spaghetti Straps Fit & Flare Sleeveless Embroidery Crepe Bridal Gown")
+
+View more: [Julie Vino](https://www.eudances.com/en/100-julie-vino "Julie Vino")
