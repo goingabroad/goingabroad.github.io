@@ -3,7 +3,7 @@ layout: post
 date: '2018-03-26'
 title: "Angela and Alison 21048 Beaded Prom Dress"
 category: COCKTAIL DRESSES
-tags: ["beaded","bridal","alison","dresses","dress"]
+tags: ["special","crazy","angela","dresses","beaded"]
 image: http://img.eudances.com/4156-thickbox_default/angela-and-alison-21048-beaded-prom-dress.jpg
 ---
 Angela and Alison 21048 Beaded Prom Dress
