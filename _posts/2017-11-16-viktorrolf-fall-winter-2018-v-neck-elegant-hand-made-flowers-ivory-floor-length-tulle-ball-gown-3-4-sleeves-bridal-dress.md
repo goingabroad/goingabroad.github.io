@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-11-16'
+title: "Viktor&Rolf Fall/Winter 2018 V-Neck Elegant Hand-made Flowers Ivory Floor-Length Tulle Ball Gown 3/4 Sleeves Bridal Dress"
+category: Viktor & Rolf
+tags: ["ivory","dresses","crazy","floor","flowers"]
+image: http://img.eudances.com/25044-thickbox_default/viktor-rolf-fall-winter-2018-v-neck-elegant-hand-made-flowers-ivory-floor-length-tulle-ball-gown-3-4-sleeves-bridal-dress.jpg
+---
+Viktor&Rolf Fall/Winter 2018 V-Neck Elegant Hand-made Flowers Ivory Floor-Length Tulle Ball Gown 3/4 Sleeves Bridal Dress
+
+On Sales: **$368.98**
+<a href="https://www.eudances.com/en/viktor-rolf/8298-viktor-rolf-fall-winter-2018-v-neck-elegant-hand-made-flowers-ivory-floor-length-tulle-ball-gown-3-4-sleeves-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/25044-thickbox_default/viktor-rolf-fall-winter-2018-v-neck-elegant-hand-made-flowers-ivory-floor-length-tulle-ball-gown-3-4-sleeves-bridal-dress.jpg" alt="Viktor&Rolf Fall/Winter 2018 V-Neck Elegant Hand-made Flowers Ivory Floor-Length Tulle Ball Gown 3/4 Sleeves Bridal Dress 0" /></a>
+<a href="https://www.eudances.com/en/viktor-rolf/8298-viktor-rolf-fall-winter-2018-v-neck-elegant-hand-made-flowers-ivory-floor-length-tulle-ball-gown-3-4-sleeves-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/25048-thickbox_default/viktor-rolf-fall-winter-2018-v-neck-elegant-hand-made-flowers-ivory-floor-length-tulle-ball-gown-3-4-sleeves-bridal-dress.jpg" alt="Viktor&Rolf Fall/Winter 2018 V-Neck Elegant Hand-made Flowers Ivory Floor-Length Tulle Ball Gown 3/4 Sleeves Bridal Dress 1" /></a>
+<a href="https://www.eudances.com/en/viktor-rolf/8298-viktor-rolf-fall-winter-2018-v-neck-elegant-hand-made-flowers-ivory-floor-length-tulle-ball-gown-3-4-sleeves-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/25047-thickbox_default/viktor-rolf-fall-winter-2018-v-neck-elegant-hand-made-flowers-ivory-floor-length-tulle-ball-gown-3-4-sleeves-bridal-dress.jpg" alt="Viktor&Rolf Fall/Winter 2018 V-Neck Elegant Hand-made Flowers Ivory Floor-Length Tulle Ball Gown 3/4 Sleeves Bridal Dress 2" /></a>
+<a href="https://www.eudances.com/en/viktor-rolf/8298-viktor-rolf-fall-winter-2018-v-neck-elegant-hand-made-flowers-ivory-floor-length-tulle-ball-gown-3-4-sleeves-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/25046-thickbox_default/viktor-rolf-fall-winter-2018-v-neck-elegant-hand-made-flowers-ivory-floor-length-tulle-ball-gown-3-4-sleeves-bridal-dress.jpg" alt="Viktor&Rolf Fall/Winter 2018 V-Neck Elegant Hand-made Flowers Ivory Floor-Length Tulle Ball Gown 3/4 Sleeves Bridal Dress 3" /></a>
+<a href="https://www.eudances.com/en/viktor-rolf/8298-viktor-rolf-fall-winter-2018-v-neck-elegant-hand-made-flowers-ivory-floor-length-tulle-ball-gown-3-4-sleeves-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/25045-thickbox_default/viktor-rolf-fall-winter-2018-v-neck-elegant-hand-made-flowers-ivory-floor-length-tulle-ball-gown-3-4-sleeves-bridal-dress.jpg" alt="Viktor&Rolf Fall/Winter 2018 V-Neck Elegant Hand-made Flowers Ivory Floor-Length Tulle Ball Gown 3/4 Sleeves Bridal Dress 4" /></a>
+
+Buy it: [Viktor&Rolf Fall/Winter 2018 V-Neck Elegant Hand-made Flowers Ivory Floor-Length Tulle Ball Gown 3/4 Sleeves Bridal Dress](https://www.eudances.com/en/viktor-rolf/8298-viktor-rolf-fall-winter-2018-v-neck-elegant-hand-made-flowers-ivory-floor-length-tulle-ball-gown-3-4-sleeves-bridal-dress.html "Viktor&Rolf Fall/Winter 2018 V-Neck Elegant Hand-made Flowers Ivory Floor-Length Tulle Ball Gown 3/4 Sleeves Bridal Dress")
+
+View more: [Viktor & Rolf](https://www.eudances.com/en/127-viktor-rolf "Viktor & Rolf")
