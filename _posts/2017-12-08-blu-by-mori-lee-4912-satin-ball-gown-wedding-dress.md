@@ -3,7 +3,7 @@ layout: post
 date: '2017-12-08'
 title: "Blu by Mori Lee 4912 Satin Ball Gown Wedding Dress"
 category: Mori Lee
-tags: ["special","gown","unique","bridal","style"]
+tags: ["special","mori","satin","dresses","unique"]
 image: http://img.eudances.com/2352-thickbox_default/blu-by-mori-lee-4912-satin-ball-gown-wedding-dress.jpg
 ---
 Blu by Mori Lee 4912 Satin Ball Gown Wedding Dress
