@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2018-04-17'
+title: "Julie Vino Fall/Winter 2018 1510B Fit & Flare Chapel Train Cap Sleeves Scoop Neck Beading Elegant Ivory Crepe Bridal Dress"
+category: Julie Vino
+tags: ["sale","sleeves","unique","winter","beading"]
+image: http://img.eudances.com/24013-thickbox_default/julie-vino-fall-winter-2018-1510b-fit-flare-chapel-train-cap-sleeves-scoop-neck-beading-elegant-ivory-crepe-bridal-dress.jpg
+---
+Julie Vino Fall/Winter 2018 1510B Fit & Flare Chapel Train Cap Sleeves Scoop Neck Beading Elegant Ivory Crepe Bridal Dress
+
+On Sales: **$518.98**
+<a href="https://www.eudances.com/en/julie-vino/8014-julie-vino-fall-winter-2018-1510b-fit-flare-chapel-train-cap-sleeves-scoop-neck-beading-elegant-ivory-crepe-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24013-thickbox_default/julie-vino-fall-winter-2018-1510b-fit-flare-chapel-train-cap-sleeves-scoop-neck-beading-elegant-ivory-crepe-bridal-dress.jpg" alt="Julie Vino Fall/Winter 2018 1510B Fit & Flare Chapel Train Cap Sleeves Scoop Neck Beading Elegant Ivory Crepe Bridal Dress 0" /></a>
+<a href="https://www.eudances.com/en/julie-vino/8014-julie-vino-fall-winter-2018-1510b-fit-flare-chapel-train-cap-sleeves-scoop-neck-beading-elegant-ivory-crepe-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24018-thickbox_default/julie-vino-fall-winter-2018-1510b-fit-flare-chapel-train-cap-sleeves-scoop-neck-beading-elegant-ivory-crepe-bridal-dress.jpg" alt="Julie Vino Fall/Winter 2018 1510B Fit & Flare Chapel Train Cap Sleeves Scoop Neck Beading Elegant Ivory Crepe Bridal Dress 1" /></a>
+<a href="https://www.eudances.com/en/julie-vino/8014-julie-vino-fall-winter-2018-1510b-fit-flare-chapel-train-cap-sleeves-scoop-neck-beading-elegant-ivory-crepe-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24017-thickbox_default/julie-vino-fall-winter-2018-1510b-fit-flare-chapel-train-cap-sleeves-scoop-neck-beading-elegant-ivory-crepe-bridal-dress.jpg" alt="Julie Vino Fall/Winter 2018 1510B Fit & Flare Chapel Train Cap Sleeves Scoop Neck Beading Elegant Ivory Crepe Bridal Dress 2" /></a>
+<a href="https://www.eudances.com/en/julie-vino/8014-julie-vino-fall-winter-2018-1510b-fit-flare-chapel-train-cap-sleeves-scoop-neck-beading-elegant-ivory-crepe-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24016-thickbox_default/julie-vino-fall-winter-2018-1510b-fit-flare-chapel-train-cap-sleeves-scoop-neck-beading-elegant-ivory-crepe-bridal-dress.jpg" alt="Julie Vino Fall/Winter 2018 1510B Fit & Flare Chapel Train Cap Sleeves Scoop Neck Beading Elegant Ivory Crepe Bridal Dress 3" /></a>
+<a href="https://www.eudances.com/en/julie-vino/8014-julie-vino-fall-winter-2018-1510b-fit-flare-chapel-train-cap-sleeves-scoop-neck-beading-elegant-ivory-crepe-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24015-thickbox_default/julie-vino-fall-winter-2018-1510b-fit-flare-chapel-train-cap-sleeves-scoop-neck-beading-elegant-ivory-crepe-bridal-dress.jpg" alt="Julie Vino Fall/Winter 2018 1510B Fit & Flare Chapel Train Cap Sleeves Scoop Neck Beading Elegant Ivory Crepe Bridal Dress 4" /></a>
+<a href="https://www.eudances.com/en/julie-vino/8014-julie-vino-fall-winter-2018-1510b-fit-flare-chapel-train-cap-sleeves-scoop-neck-beading-elegant-ivory-crepe-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/24014-thickbox_default/julie-vino-fall-winter-2018-1510b-fit-flare-chapel-train-cap-sleeves-scoop-neck-beading-elegant-ivory-crepe-bridal-dress.jpg" alt="Julie Vino Fall/Winter 2018 1510B Fit & Flare Chapel Train Cap Sleeves Scoop Neck Beading Elegant Ivory Crepe Bridal Dress 5" /></a>
+
+Buy it: [Julie Vino Fall/Winter 2018 1510B Fit & Flare Chapel Train Cap Sleeves Scoop Neck Beading Elegant Ivory Crepe Bridal Dress](https://www.eudances.com/en/julie-vino/8014-julie-vino-fall-winter-2018-1510b-fit-flare-chapel-train-cap-sleeves-scoop-neck-beading-elegant-ivory-crepe-bridal-dress.html "Julie Vino Fall/Winter 2018 1510B Fit & Flare Chapel Train Cap Sleeves Scoop Neck Beading Elegant Ivory Crepe Bridal Dress")
+
+View more: [Julie Vino](https://www.eudances.com/en/100-julie-vino "Julie Vino")
