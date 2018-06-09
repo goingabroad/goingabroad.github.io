@@ -3,7 +3,7 @@ layout: post
 date: '2018-03-01'
 title: "Gali Karten 2018 Embroidery Tulle Aline Sweet V-Neck Sleeveless Sweep Train Ivory Wedding Gown"
 category: Galia Lahav
-tags: ["karten","bridal","sweep","style","wedding"]
+tags: ["train","crazy","gown","bridal","sale"]
 image: http://img.eudances.com/25769-thickbox_default/gali-karten-2018-embroidery-tulle-aline-sweet-v-neck-sleeveless-sweep-train-ivory-wedding-gown.jpg
 ---
 Gali Karten 2018 Embroidery Tulle Aline Sweet V-Neck Sleeveless Sweep Train Ivory Wedding Gown
