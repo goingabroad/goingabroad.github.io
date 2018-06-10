@@ -3,7 +3,7 @@ layout: post
 date: '2018-02-13'
 title: "Gali Karten 2018 Chapel Train Sweet Ivory Aline Sweetheart Sleeveless Embroidery Tulle Dress For Bride"
 category: Galia Lahav
-tags: ["chapel","bride","train","aline","sweetheart"]
+tags: ["ivory","bridal","chapel","sweet","dresses"]
 image: http://img.eudances.com/25644-thickbox_default/gali-karten-2018-chapel-train-sweet-ivory-aline-sweetheart-sleeveless-embroidery-tulle-dress-for-bride.jpg
 ---
 Gali Karten 2018 Chapel Train Sweet Ivory Aline Sweetheart Sleeveless Embroidery Tulle Dress For Bride
