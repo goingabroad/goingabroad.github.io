@@ -3,7 +3,7 @@ layout: post
 date: '2018-01-22'
 title: "Gali Karten 2018 Embroidery Sweet Lace Illusion Aline Cap Sleeves Sweep Train Ivory Bridal Gown"
 category: Galia Lahav
-tags: ["train","gali","sweet","sweep","bridal"]
+tags: ["special","dresses","gown","sale","sweet"]
 image: http://img.eudances.com/25567-thickbox_default/gali-karten-2018-embroidery-sweet-lace-illusion-aline-cap-sleeves-sweep-train-ivory-bridal-gown.jpg
 ---
 Gali Karten 2018 Embroidery Sweet Lace Illusion Aline Cap Sleeves Sweep Train Ivory Bridal Gown
