@@ -1,0 +1,4 @@
+---
+slug: lincoln
+name: lincoln
+---
