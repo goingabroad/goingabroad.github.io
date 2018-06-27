@@ -1,0 +1,4 @@
+---
+slug: beadingwedding
+name: beadingwedding
+---
