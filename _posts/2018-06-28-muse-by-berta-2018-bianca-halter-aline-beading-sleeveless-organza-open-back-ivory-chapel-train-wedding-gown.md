@@ -1,0 +1,22 @@
+---
+layout: post
+date: '2018-06-28'
+title: "Muse by Berta 2018 BIANCA Halter Aline Beading Sleeveless Organza Open Back Ivory Chapel Train Wedding Gown"
+category: Berta
+tags: ["beading","back","dresses","unique","bianca"]
+image: http://img.eudances.com/22435-thickbox_default/muse-by-berta-2018-bianca-halter-aline-beading-sleeveless-organza-open-back-ivory-chapel-train-wedding-gown.jpg
+---
+Muse by Berta 2018 BIANCA Halter Aline Beading Sleeveless Organza Open Back Ivory Chapel Train Wedding Gown
+
+On Sales: **$368.98**
+<a href="https://www.eudances.com/en/berta/7163-muse-by-berta-2018-bianca-halter-aline-beading-sleeveless-organza-open-back-ivory-chapel-train-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/22435-thickbox_default/muse-by-berta-2018-bianca-halter-aline-beading-sleeveless-organza-open-back-ivory-chapel-train-wedding-gown.jpg" alt="Muse by Berta 2018 BIANCA Halter Aline Beading Sleeveless Organza Open Back Ivory Chapel Train Wedding Gown 0" /></a>
+<a href="https://www.eudances.com/en/berta/7163-muse-by-berta-2018-bianca-halter-aline-beading-sleeveless-organza-open-back-ivory-chapel-train-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/22441-thickbox_default/muse-by-berta-2018-bianca-halter-aline-beading-sleeveless-organza-open-back-ivory-chapel-train-wedding-gown.jpg" alt="Muse by Berta 2018 BIANCA Halter Aline Beading Sleeveless Organza Open Back Ivory Chapel Train Wedding Gown 1" /></a>
+<a href="https://www.eudances.com/en/berta/7163-muse-by-berta-2018-bianca-halter-aline-beading-sleeveless-organza-open-back-ivory-chapel-train-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/22440-thickbox_default/muse-by-berta-2018-bianca-halter-aline-beading-sleeveless-organza-open-back-ivory-chapel-train-wedding-gown.jpg" alt="Muse by Berta 2018 BIANCA Halter Aline Beading Sleeveless Organza Open Back Ivory Chapel Train Wedding Gown 2" /></a>
+<a href="https://www.eudances.com/en/berta/7163-muse-by-berta-2018-bianca-halter-aline-beading-sleeveless-organza-open-back-ivory-chapel-train-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/22439-thickbox_default/muse-by-berta-2018-bianca-halter-aline-beading-sleeveless-organza-open-back-ivory-chapel-train-wedding-gown.jpg" alt="Muse by Berta 2018 BIANCA Halter Aline Beading Sleeveless Organza Open Back Ivory Chapel Train Wedding Gown 3" /></a>
+<a href="https://www.eudances.com/en/berta/7163-muse-by-berta-2018-bianca-halter-aline-beading-sleeveless-organza-open-back-ivory-chapel-train-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/22438-thickbox_default/muse-by-berta-2018-bianca-halter-aline-beading-sleeveless-organza-open-back-ivory-chapel-train-wedding-gown.jpg" alt="Muse by Berta 2018 BIANCA Halter Aline Beading Sleeveless Organza Open Back Ivory Chapel Train Wedding Gown 4" /></a>
+<a href="https://www.eudances.com/en/berta/7163-muse-by-berta-2018-bianca-halter-aline-beading-sleeveless-organza-open-back-ivory-chapel-train-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/22437-thickbox_default/muse-by-berta-2018-bianca-halter-aline-beading-sleeveless-organza-open-back-ivory-chapel-train-wedding-gown.jpg" alt="Muse by Berta 2018 BIANCA Halter Aline Beading Sleeveless Organza Open Back Ivory Chapel Train Wedding Gown 5" /></a>
+<a href="https://www.eudances.com/en/berta/7163-muse-by-berta-2018-bianca-halter-aline-beading-sleeveless-organza-open-back-ivory-chapel-train-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.eudances.com/22436-thickbox_default/muse-by-berta-2018-bianca-halter-aline-beading-sleeveless-organza-open-back-ivory-chapel-train-wedding-gown.jpg" alt="Muse by Berta 2018 BIANCA Halter Aline Beading Sleeveless Organza Open Back Ivory Chapel Train Wedding Gown 6" /></a>
+
+Buy it: [Muse by Berta 2018 BIANCA Halter Aline Beading Sleeveless Organza Open Back Ivory Chapel Train Wedding Gown](https://www.eudances.com/en/berta/7163-muse-by-berta-2018-bianca-halter-aline-beading-sleeveless-organza-open-back-ivory-chapel-train-wedding-gown.html "Muse by Berta 2018 BIANCA Halter Aline Beading Sleeveless Organza Open Back Ivory Chapel Train Wedding Gown")
+
+View more: [Berta](https://www.eudances.com/en/110-berta "Berta")
